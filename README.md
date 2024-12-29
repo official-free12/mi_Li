@@ -1,0 +1,6 @@
+# 蜜蜂赚机器人挂机理财分红包金融投资静态返利系统赚钱带后台完美运营封装APP
+
+【拍下自动发货，】<br>想赚钱趁早<br>前台测试：http://example.com/<br>账号：12345678999   密码：123456<br>后台测试http://example.com/admin; 帐号 admin88 密码123456<br>蜜蜂赚app是一款养蜜蜂赚挂机赚钱软件，挂机理财分红，金融投资静态返利，用户注册就能免费领取蜜蜂，满10即可提取，不需实名，推广还送奖励，享受50%佣金提成，还可打包封装APP。<br>产品优势<br>example.com，设置齐全<br>example.com，推广上手简单<br>example.com（80-120元/天）<br>example.com，用于购买蜜蜂<br>example.com%的佣金提成<br>-------------------------------------------------------------------------------------------------------------------<br>-------------------------------------------------------------------------------------------------------------------<br>源码仅供交流测试，请勿用于商业途径及非法运营，一切法律责任其他责任与本人本店无关！<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/O9Mf6" style="color: red;">https://mega-file.org/O9Mf6</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
